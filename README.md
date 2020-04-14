@@ -1,2 +1,2 @@
 # Hussainip
-I hope to be developed 
+I hope to be developer 
